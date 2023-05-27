@@ -1,0 +1,6 @@
+![image](https://github.com/Raihangarin/UklKasir/assets/100213839/e8133951-2317-486f-8705-06e6a2d28385)
+![image](https://github.com/Raihangarin/UklKasir/assets/100213839/7169d0d8-879a-431d-b772-70a9b7c7a4ee)
+![image](https://github.com/Raihangarin/UklKasir/assets/100213839/d189d1d1-94fc-4825-8e55-8eecfa0fe220)
+![image](https://github.com/Raihangarin/UklKasir/assets/100213839/24adb379-4f23-4dee-a8bc-3f0c52339f5f)
+![image](https://github.com/Raihangarin/UklKasir/assets/100213839/d5ca744e-1524-48a9-9a26-aa3be2896870)
+![image](https://github.com/Raihangarin/UklKasir/assets/100213839/5bdab1bf-3a53-43c0-b99a-f7719a32f68d)
